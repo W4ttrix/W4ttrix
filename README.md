@@ -91,3 +91,5 @@ ___
   sємı-dαılγ ση ρσηγ тσωη, ƒєєι ƒгєє тσ ıηтєгαcт, тнαт'd мαĸє мγ dαγ ᵎᵎ
   
   . ݁₊ ⊹ . ݁˖ . ݁
+  ___
+  prev known as  "`R1NG" , "Scarlin"/"lin" or "shawarma" heh
