@@ -98,4 +98,10 @@ ___
   ___
   HEAVLY DNI :: if you try to bully ANYONE in front of me esp my friends, UNLESS its a joke AND they don't get hurt.
   ___
-  !(<img width="498" height="314" alt="Jeff The Killer Jeffrey Woods GIF - Jeff The Killer Jeffrey Woods Creepypasta - Discover   Share GIFs" src="https://github.com/user-attachments/assets/e9403c6e-d9c6-488b-80f3-54030d08fac9" />)
+ <img width="498" height="314" alt="Jeff The Killer Jeffrey Woods GIF - Jeff The Killer Jeffrey Woods Creepypasta - Discover   Share GIFs" src="https://github.com/user-attachments/assets/e9403c6e-d9c6-488b-80f3-54030d08fac9" />
+this guy is me trust
+
+#Ilovejeffthekiller
+#IlovemywifeMyers
+#IloveViolenceDistrict
+but the newest update gives me a headache.. W tho
